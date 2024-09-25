@@ -1,1 +1,2 @@
 # my-first-repo
+My name is Tyron Odame. I am a cronic gamer who also enjoys programming. My favorite sport is Lacrosse and I also like to bowl. I have many hobbies but arts and crafts is the main one, specifically origami. Origami is the art of foldong paper.
